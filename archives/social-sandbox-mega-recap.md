@@ -2,7 +2,7 @@
 ### Social Sandbox Mega Recap Post
 
 
-[I’m leaving NPR.](http://www.melodyjk.com/i-have-some-news/) As a present to myself, I made this guide to almost every single Social Sandbox post from last November to the present, organized by topic.  ([Here’s the web version](http://www.melodyjk.com/social-sandbox-mega-recap-post/) if you want to bookmark it or send it to your coworkers or pass along to a friend.) - Mel
+[I’m leaving NPR.](http://www.melodyjk.com/i-have-some-news/) As a present to myself, I made this guide to almost every single Social Sandbox post from last November to the present, organized by topic.  ([Here’s the web version](http://www.melodyjk.com/social-sandbox-mega-recap-post/) if you want to bookmark it or send it to your coworkers or pass along to a friend.) - Mel Hi! I'm Pluto
 
 (If you want to follow me beyond this, I’m [melodykramer](http://tmblr.co/m4JgA56MT75MuoD2ouc0dOw) and [@mkramer](https://twitter.com/mkramer) on Twitter.)
 
